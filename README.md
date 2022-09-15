@@ -2,7 +2,7 @@
 ## Hi, I'm SA Sazid
 ### Professional Blogger 
 
-![Blogger ](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
+![Blogger ]()
 
 ## About Me
 Hi! there SA Sazid. Known as Sharafat Ahmed. I'm from Bangladesh. I'm 17 years old. I'm Professional Blogger, Photographer, Article Writer, Content Creator, Content Writer, Singer and so much more. I'm always like to learn something new. Every project I’ve taken on was guided by my curiosity, creativity and diligence. I use this space to showcase my current and past work, to detail upcoming plans and to make my presence felt in the world. I’m constantly changing and evolving, so what you see here today might not be here tomorrow. Putting myself out there in such a public manner is not always easy, but I’ve found that the more I do the easier it is. I enjoy having such a great opportunity to share the things I love, the places I discover and some of my most personal moments with a growing loyal community. I consider this platform an ongoing creation with so much potential to grow and evolve. I like to sing, It's make me happy. Thanks ❤
@@ -38,7 +38,6 @@ Hi! there SA Sazid. Known as Sharafat Ahmed. I'm from Bangladesh. I'm 17 years o
 
 ## 📧 For Business Inquiries 
 ✅  ► sharafat.ahmed619@gmail.com
-
 
 
 
