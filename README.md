@@ -1,6 +1,6 @@
 
-### Hi there 👋, I'm SA Sazid
-#### Blogger 
+### Hi, I'm SA Sazid
+#### Professional Blogger 
 ![Blogger ](https://twitter.com/1sa_official/header_photo)
 
 Nothing to say
