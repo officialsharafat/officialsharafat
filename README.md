@@ -29,7 +29,7 @@ Hi! there SA Sazid. Known as Sharafat Ahmed. I'm from Bangladesh. I'm 17 years o
 
 
 
-![Profile views](https://gpvc.arturio.dev/officialsharafat)  
+
 
 
 
